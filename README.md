@@ -1,0 +1,2 @@
+# Exponent
+Exponent / Eksponen
